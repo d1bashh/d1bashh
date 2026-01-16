@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hy, I'm Dibash Shrestha. I'm like watching my soccer team play, not much interesting about me.👋
 
 <!--
 **d1bashh/d1bashh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
